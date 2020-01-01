@@ -4,7 +4,7 @@
 Just some list examples:
 
 -This is
-- an unordered
+- very unordered
 - list
 
 1. This is
