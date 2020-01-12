@@ -1,19 +1,22 @@
-#This is a heading.
-##This is a smaller heading.
+If
+If freckles were lovely, and day was night,
+And measles were nice and a lie warn’t a lie,
+Life would be delight,—
+But things couldn’t go right
+For in such a sad plight
+I wouldn’t be I.
 
-Just some list examples:
+If earth was heaven and now was hence,
+And past was present, and false was true,
+There might be some sense
+But I’d be in suspense
+For on such a pretense
+You wouldn’t be you.
 
--This is
-- very unordered
-- list
+If fear was plucky, and globes were square,
+And dirt was cleanly and tears were glee
+Things would seem fair,—
+Yet they’d all despair,
+For if here was there
+We wouldn’t be we.
 
-1. This is
-2. an ordered
-3. list
-
-Code example:
-```
-code
-```
-[a link](https://www.wikipedia.org)
-![an image](https://www.wikipedia.org/wiki/Main_Page#/media/File:The_French_attempt_to_recapture_Calais_from_England_(1350).jpg)
