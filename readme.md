@@ -1,22 +1,20 @@
-# If<br/>
-If freckles were lovely, and day was night,<br/>
-And measles were nice and a lie warn’t a lie,<br/>
-Life would be delight,—<br/>
-But things couldn’t go right<br/>
-For in such a sad plight<br/>
-I wouldn’t be I.<br/>
-
-If earth was heaven and now was hence,<br/>
-And past was present, and false was true,<br/>
-There might be some sense<br/>
-But I’d be in suspense<br/>
-For on such a pretense<br/>
-You wouldn’t be you.<br/>
-
-If fear was plucky, and globes were square,<br/>
-And dirt was cleanly and tears were glee<br/>
-Things would seem fair,—<br/>
-Yet they’d all despair,<br/>
-For if here was there<br/>
-We wouldn’t be we.<br/>
-
+# Честит рожден ден, бабо!<br/>
+Честит рожден ден от мен,<br/>
+честит рожден ден и от слънцето, и от морето, и от вятъра!<br/>
+защото и слънцето, и морето, и вятърът<br/>
+са си същото слънце, и същото море, и същият вятър<br/>
+каквито са били<br/>
+и когато си се родила<br/>
+и когато си раснала<br/>
+и когато си пътувала<br/>
+и когато си се радвала<br/>
+и когато си тъгувала.<br/>
+За тях си стар и скъп приятел,<br/>
+защото старите приятели<br/>
+са ни най-ценните приятли.<br/>
+В този ден на вашето вече над 90-годишно приятелство<br/>
+приеми и моя поздрав<br/>
+на по-отскорошен твой приятел,<br/>
+който обаче те обича не по-малко<br/>
+и ти желае здраве и щастие,<br/>
+и слънце, и море, и вятър!<br/>
