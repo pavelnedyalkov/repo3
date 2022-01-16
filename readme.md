@@ -1,6 +1,6 @@
 ---
-layout: post
-title: null
+layout: page
+title: "words"
 ---
 
 # Честит рожден ден, бабо!<br/>
