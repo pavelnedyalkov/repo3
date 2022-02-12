@@ -1,20 +1,18 @@
-# Честит рожден ден, бабо!<br/>
-Честит рожден ден от мен,<br/>
-честит рожден ден и от слънцето, и от морето, и от вятъра!<br/>
-Защото и слънцето, и морето, и вятърът<br/>
-са си все същото слънце, и същото море, и същият вятър<br/>
-каквито са били<br/>
-и когато си се родила<br/>
-и когато си раснала<br/>
-и когато си пътувала<br/>
-и когато си се радвала<br/>
-и когато си тъгувала.<br/>
-За тях си стар и скъп приятел,<br/>
-защото старите приятели<br/>
-са ни най-ценните приятели.<br/>
-И в този ден на вашето вече над 91-годишно приятелство,<br/>
-приеми и моя поздрав<br/>
-на по-отскорошен твой приятел,<br/>
-който обаче те обича не по-малко<br/>
-и ти желае здраве и щастие,<br/>
-и слънце, и море, и летен вятър!<br/>
+#NEM SEMPRE SOU IGUAL <br/>
+
+Nem sempre sou igual no que digo e escrevo.<br/>
+Mudo, mas não mudo muito.<br/>
+A cor das flores não é a mesma ao sol<br/>
+De que quando uma nuvem passa<br/>
+Ou quando entra a noite<br/>
+E as flores são cor da sombra.<br/>
+<br/>
+Mas quem olha bem vê que são as mesmas flores.<br/>
+Por isso quando pareço não concordar comigo,<br/>
+Reparem bem para mim:<br/>
+Se estava virado para a direita,<br/>
+Voltei-me agora para a esquerda,<br/>
+Mas sou sempre eu, assente sobre os mesmos pés -<br/>
+O mesmo sempre, graças ao céu e à terra<br/>
+E aos meus olhos e ouvidos atentos<br/>
+E à minha clara simplicidade de alma ...<br/>
